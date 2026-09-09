@@ -32,7 +32,7 @@
  <p align="center">$\color{#1f2734}{\textsf{my chat is constantly}}$ $\color{#1f2734}{\textsf{ turned off, w2i if you}}$ $\color{#1f2734}{\textsf{ want me to see ur text}}$
 
   
- <p align="center"> <a href="https://guns.lol/ashdiesalone">contact me</a> ; <a href="https://aoshi.atabook.org/">atabook</a>
+ <p align="center"> <a href="https://guns.lol/ashdiesalone">contact me</a> ; <a href="https://aoshi.atabook.org/">atabook</a> ; <a href="https://drkellin.straw.page/">straw (not mobile friendly)</a> ; art dump (wip straw)
 <td style="vertical-align: top;">
 <p align="center"><img align=right width=250 src = "https://aoshifullalalalal.carrd.co/assets/images/image16.png?v=646155db" />
 <p align="center">
