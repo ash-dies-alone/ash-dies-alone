@@ -22,4 +22,4 @@
 
 <p align="center"> whats the point of strawpages if no one checks them
 
-also iwc. i don't trust anyone from pony town yall r always so mean
+also iwc. i don't trust anyone from pony town yall r always so mean (I DO NOT REMEMBER TYPING THAT WHAT THE HELL ?????????????)
