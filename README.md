@@ -12,9 +12,9 @@
 
 <p align="center"> <img width="400" src="https://github.com/user-attachments/assets/66376da7-023c-4ed9-b8de-3c8a5acfdb9f" /> </p>
 
-$\color{#686c78}{\textsf{I DO NOT INTERΛCT}}$ $\color{#55464c}{\textsf{FIRST -}}$ $\color{#43444f}{\textsf{CΛN'T BRING}}$ $\color{#2c2831}{\textsf{MYSELF }}$  $\color{#43444f}{\textsf{TO DO}}$ $\color{#2c2831}{\textsf{SO.}}$
+$\color{#686c78}{\textsf{I DO NOT INTERΛCT}}$ $\color{#55464c}{\textsf{FIRST -}}$ $\color{#43444f}{\textsf{CΛN'T BRING}}$ $\color{#2c2831}{\textsf{MYSELF}}$  $\color{#43444f}{\textsf{TO DO}}$ $\color{#2c2831}{\textsf{SO.}}$
 
-$\color{#2b293}{\textsf{LEΛRNING}}$ $\color{#666a76}{\textsf{INDONESIΛN.}}$
+$\color{#2b2931}{\textsf{LEΛRNING}}$ $\color{#666a76}{\textsf{INDONESIΛN.}}$
 
 $\color{#8f834c}{\textsf{BE MY FRIEND.}}$
  
