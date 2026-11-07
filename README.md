@@ -6,18 +6,21 @@
 </br>
 </br>
 $\color{#8f834c}{\textsf{BE MY FRIEND.}}$
-
+</br>
 ${\textsf{\color{#686c78} ΛSH / ΛOSHI / TΛCO}}$
 </br>
  ${\textsf{\color{#55464c} 16 , THEY / IT / HE / ΛNY}}$
-
-${\textsf{\color{#43444f} PLS INT FIRST ΛT ΛLL TIMES.}}$
 </br>
-<details align=middle>
+${\textsf{\color{#43444f} PLS INT FIRST ΛT ΛLL TIMES.}}$
+
+<p align="center">
+
+<details align=right>
 <summary>$${\color{#2c2831}friends}$$</summary>
 <a href="https://github.com/michaburgerking">MICHΛ</a> ; <a href="https://github.com/keepmeonfire">ΛVERY <3</a> ; <a href="https://github.com/scrsonmythighs">RIN</a> ; <a href="https://github.com/sprout-seedly-berryfunny">DΛNIEL</a> ; <a href="https://github.com/jesskosh">KOSH :)</a>
 </details>
- 
+
+<p align="center">
 ${\textsf{\color{#686c78} MY MAIN INTERESTS RN ΛRE}}$ ${\textsf{\color{#676975}TBoI , MΛU MΛKΛN ΛPΛ ,}}$ ${\textsf{\color{#43444f}RΛIN WORLD ΛND}}$ ${\textsf{\color{#2b2931}VOICES OF THE VOID}}$
 </br>
 $\color{#8f834c}{\textsf{GENPIN}}$ $\color{#676975}{\textsf{ΛND}}$ $\color{#3a272a}{\textsf{ΛZΛZEL}}$ $\color{#676975}{\textsf{FΛN.}}$
