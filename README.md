@@ -9,7 +9,7 @@ $\color{#8f834c}{\textsf{BE MY FRIEND.}}$
 </br>
 ${\textsf{\color{#686c78} ΛSH / ΛOSHI / TΛCO}}$
 </br>
- ${\textsf{\color{#55464c} 16 , THEY / IT / HE / ΛNY}}$
+ ${\textsf{\color{#55464c} 6TEEN , THEY / IT / HE / ΛNY}}$
 </br>
 ${\textsf{\color{#43444f} PLS INT FIRST ΛT ΛLL TIMES.}}$
 
