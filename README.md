@@ -25,7 +25,7 @@ ${\textsf{\color{#686c78} MY MAIN INTERESTS RN ΛRE}}$ ${\textsf{\color{#676975}
 $\color{#8f834c}{\textsf{GENPIN}}$ $\color{#676975}{\textsf{ΛND}}$ $\color{#3a272a}{\textsf{ΛZΛZEL}}$ $\color{#676975}{\textsf{FΛN.}}$
 
 [<img width="192" src="https://aoshifullalalalal.carrd.co/assets/images/image18.png?v=edbff278" />](https://aoshi.atabook.org)
-[<img width="160" src="https://aoshifullalalalal.carrd.co/assets/images/image19.png?v=edbff278" />](https://drkellin.straw.page/)
+[<img width="160" src="https://aoshifullalalalal.carrd.co/assets/images/image19.png?v=edbff278" />](https://genpin.straw.page/)
 
  <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
