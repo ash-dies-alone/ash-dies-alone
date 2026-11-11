@@ -32,3 +32,6 @@ $\color{#8f834c}{\textsf{GENPIN}}$ $\color{#676975}{\textsf{ΛND}}$ $\color{#3a2
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31ojtnffpro77mk4hkdhmadyp6ba&cover_image=true&theme=natemoo-re&show_offline=true&background_color=8f834c&interchange=false&profanity=false&bar_color=8f834c&bar_color_cover=false">
   </a>
 </p>
+
+
+${\textsf{\color{#676975}CHECK STRΛW FOR MORE INFO.}}$
